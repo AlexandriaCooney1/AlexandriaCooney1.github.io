@@ -1,1 +1,1 @@
-# AlexandriaCooney1.github.io
+Alexandria Cooney, wake tech email is atcooney@my.waketech.edu, this is my wake tech account that will hold assignments
